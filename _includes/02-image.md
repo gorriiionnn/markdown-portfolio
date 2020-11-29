@@ -1,1 +1,1 @@
-[Símbolo de la paz] (https://mariposafolk.com/wp-content/uploads/2013/07/peace-300x300.gif)
+![Símbolo de la paz] (https://upload.wikimedia.org/wikipedia/commons/5/59/Peace-symbol.png)
