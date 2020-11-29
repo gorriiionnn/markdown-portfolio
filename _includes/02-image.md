@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+[Símbolo de la paz] (https://mariposafolk.com/wp-content/uploads/2013/07/peace-300x300.gif)
