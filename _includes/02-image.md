@@ -1,1 +1,1 @@
-![Símbolo de la paz] (https://upload.wikimedia.org/wikipedia/commons/5/59/Peace-symbol.png)
+![Símbolo de la paz] (https://png.pngtree.com/png-clipart/20190705/original/pngtree-hand-in-peace-sign-png-image_4341534.jpg)
